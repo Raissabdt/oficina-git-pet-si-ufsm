@@ -7,3 +7,5 @@ Matérias Favoritas:
 Comidas Favoritas:
 
 1) Peixe do ru
+
+Objetivos Profissionais: ganhar dinheiro para me sustentar
